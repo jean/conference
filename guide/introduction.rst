@@ -8,11 +8,11 @@ social, theme and scope. It is also possibly one of the most rewarding things
 you may ever do.
 
 Make no mistake though - it is an investment, an investment of your time, money
-and other resources which is fraut with pitfalls. When though, at the end of
+and other resources which is fraught with pitfalls. When though, at the end of
 your event, and people come up to you and shake you and your volunteers' hands,
-pat you on the back and thank you you will know it was worth it.
+pat you on the back and thank you, you will know it was worth it.
 
-We hope, by making this guide that you can navigate the pitfalls and mistakes
+We hope, by making this guide, that you can navigate the pitfalls and mistakes
 that many of us have made. We hope to provide to you enough resources and pointers
 so that you can hit the ground running and put on yet another amazing event for
 the community.
